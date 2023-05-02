@@ -1,0 +1,2 @@
+# -thu_Details_of_Management_Information_B_Lesson5
+経営情報各論BⅠ　第５回講義資料
